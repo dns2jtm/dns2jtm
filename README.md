@@ -35,4 +35,4 @@ BSc (Hons) Computer Science with Year in Industry student at the **University of
 
 ---
 
-📫 **Contact:** [dns2jtm@gmail.com](mailto:dns2jtm@gmail.com) • [LinkedIn](https://linkedin.com/in/danielsawa)
+📫 **Contact:** [dns2jtm@gmail.com](mailto:dns2jtm@gmail.com)
